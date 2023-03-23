@@ -25,6 +25,6 @@ I am constantly exploring new technologies and finding ways to apply my knowledg
 
 You can find me on [LinkedIn](https://www.linkedin.com/in/eduard-matei-4413531b8/), where you can see my projects, skills, and other things.
 
-You can also send me an email : at eduard.matei@proton.me
+You can also send me an email at : eduard.matei@proton.me
 
 Feel free to reach out to me, I am always happy to connect and chat about tech and opportunities! 🤝🚀

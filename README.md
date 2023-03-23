@@ -27,4 +27,8 @@ You can find me on [LinkedIn](https://www.linkedin.com/in/eduard-matei-4413531b8
 
 You can also send me an email at : eduard.matei@proton.me
 
+OR
+
+Check out my [landing page](https://lexofficial29.github.io/).
+
 Feel free to reach out to me, I am always happy to connect and chat about tech and opportunities! 🤝🚀
